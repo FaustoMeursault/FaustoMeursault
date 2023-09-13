@@ -17,4 +17,4 @@ Meu nome é Yoshikage Kira 💣😼
 - É assim que eu lido com a sociedade e sei que é isso que me traz felicidade;
 - Embora, se eu fosse lutar, não perderia para ninguém;
 
- ![](https://tenor.com/pt-BR/view/yoshikage-kira-evil-smile-creepy-jojos-bizarre-adventures-jjba-gif-16850755)
+ ![](https://media.tenor.com/CZw1NnCEC4oAAAAd/yoshikage-kira-evil-smile.gif)
