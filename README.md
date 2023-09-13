@@ -15,4 +15,6 @@ Meu nome é Yoshikage Kira 💣😼
 - Estou tentando explicar que sou uma pessoa que deseja viver uma vida muito tranquila;
 - Cuido para não me incomodar com inimigos;
 - É assim que eu lido com a sociedade e sei que é isso que me traz felicidade;
-- mbora, se eu fosse lutar, não perderia para ninguém;
+- Embora, se eu fosse lutar, não perderia para ninguém;
+
+ ![](https://tenor.com/pt-BR/view/yoshikage-kira-evil-smile-creepy-jojos-bizarre-adventures-jjba-gif-16850755)
